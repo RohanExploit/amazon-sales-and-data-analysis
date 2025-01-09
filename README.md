@@ -47,5 +47,5 @@ Watch the complete Dashboard video [Link](https://youtu.be/Ryybc-pR3TE)
 
 ## 📩 Feedback
 
-If you have any feedback, please reach out to me at [Linkedin](https://www.linkedin.com/in/shivamsh/)
+If you have any feedback, please reach out to me at [Linkedin](https://www.linkedin.com/in/rohangaikwadlink/)
 
